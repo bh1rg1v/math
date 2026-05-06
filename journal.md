@@ -3,7 +3,7 @@ Day 1 - May 01 2026
 Mistake - haven't done anything.
 Cause - haven’t planned to do something.
 
-I am pledging that I wouldn't repeat a mistake(except for extreme cases) once I have registered it here.
+I am pledging that I wouldn't repeat a mistake(except for extreme cases) once I have addressed it here.
 
 To Do List:
 
